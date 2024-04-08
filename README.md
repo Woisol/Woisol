@@ -4,24 +4,16 @@ You can click the Preview link to take a look at your changes.
 --->
 Hello there~ I'm Woisol 😊⭐️🌟⭐️
 
-An Chinese senior 3 student from the south. 🇨🇳😘
+An Chinese student studying in SYSU🤗
 
-Willing to code with all of those lovers on IT. 😆
+(Hope not lose face to the school🥲)
 
-Trying to spare time learning C. (Though it can't be now since academy)😭
+Now hesitating in choosing the way to go to.😶‍🌫️
 
-But I'm bound to continue after the final! 🤓
+Though having a hard time in academy, I still wish to conquer the Frontend.🥰
 
+Will NEVER give up.✊
 
-Got QQ at 3211611401
+Will forge ahead.👊
 
-You can also reach me via searching Woisol in some other platform,
-such as Wechat,Bilibili and Twitter...
-
-//Is there really someone want so? 😅🤣
-
-Last but not least😂
-
-Lumine is my everything ⭐️💖❤️💛❤️💛❤️💖🌟
-so you can't be surprised when seeing my account🤣
-
+With the love of the Coding World!❤️
